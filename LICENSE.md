@@ -1,4 +1,4 @@
-# 
+# automatic nft flip bot | real-time-monitoring + auto-buy offers the most advanced nft flip bot, with real-time-monitoring and auto-buy. Ideal for professional NFT traders and
 
 
 
